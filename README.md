@@ -1,1 +1,1 @@
-# Office-of-the-Dead-Proportional
+# Office of the Dead notated with proportional rhythm.
